@@ -1,2 +1,2 @@
 # IBM-01
-LEBIH AMAN DARI SEBELUM NYA
+Dukungan sudah berakhir 
